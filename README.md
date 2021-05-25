@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **vitordc.contato@gmail.com**
 
-- ⚡ Fun fact **People from BR can speak in Português**
+- ⚡ Fun fact **If you are from BR we can speak in Português with each other demoro !**
 
 
 
